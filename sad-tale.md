@@ -9,3 +9,5 @@ Ned did in fact get axe murdered and Joffrey Lannister became the king.
 
 Joffrey Baratheon was the one to do Ned in, but his story was only about to
 begin, and let me assure you he will ___DEFINITELY NOT DIE!___
+
+And then there's probably some white walkers of something.
